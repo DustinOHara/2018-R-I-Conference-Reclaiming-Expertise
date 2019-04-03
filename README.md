@@ -1,3 +1,5 @@
+https://ric.gseis.ucla.edu/2018/
+
 # Reclaiming Expertise: 2018 Research and Inquiry Conference 
 Facing Challenges to Knowledge, Authenticity, Expertise & Trust
 5th annual Research & Inquiry Conference
